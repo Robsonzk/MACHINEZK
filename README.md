@@ -1,4 +1,4 @@
-Oi meu nome e MACHINEZK
+Oi eu sou a MACHINEZK01
 Atualmente eu estudo ciências da computação.
 Sou apaixonado por máquinas.
 Gosto de ler e fazer pesquisas sobre as novas tecnológias, principalmente na área de manipulação a objetos que uma área que a área que eu amo.
